@@ -19,6 +19,6 @@ para vivir en vuestra memoria,</br>
 como un tatuaje en la piel.</br>
 </br>
 Mi unica preocupacion,</br>
-es irem feliz,</br>
+es irme feliz,</br>
 el no errepentirme,</br>
 de quien alguna vez fui.</br>
